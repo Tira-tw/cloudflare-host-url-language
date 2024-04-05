@@ -1,3 +1,4 @@
+[Discord](https://discord.gg/xDeaneQMj9) <br>
 許多語言共有選擇<br>
 many language can use<br>
 本人只翻譯/host 想要提供不同語言.<br>
